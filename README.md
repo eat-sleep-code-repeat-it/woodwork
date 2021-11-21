@@ -1,5 +1,7 @@
 # woodwork
 
+[Janka hardness of woods](https://docs.google.com/file/d/1Zp8WJXgURrWtcZiHhY9Om2Ann1J1YwcV/view)
+
 ## Video
 
 - [What Kind of Wood Should You Build With? | WOODWORKING BASICS](https://www.youtube.com/watch?v=y7gLvEYoBu0)
@@ -13,4 +15,6 @@
 
 ## tools
 
--[Kreg KMA2685 Rip-Cut Circular Saw Guide , Blue $39.00](Kreg Rip Cut - https://amzn.to/2ZAAqry)
+- [Kreg KMA2685 Rip-Cut Circular Saw Guide , Blue $39.00](Kreg Rip Cut - https://amzn.to/2ZAAqry)
+- Franklin International 5005 Titebond II Premium Wood Glue, 32-Ounce Bottle
+- Gorilla 6231501 Wood Glue, 1 gallon Bottle, Natural Wood Color
