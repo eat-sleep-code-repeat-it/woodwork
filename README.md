@@ -2,6 +2,9 @@
 
 [Janka hardness of woods](https://docs.google.com/file/d/1Zp8WJXgURrWtcZiHhY9Om2Ann1J1YwcV/view)
 
+## story
+
+- [Menards Lumber & Boards at 32501 VAN DYKE AVE WARREN, MI 48093](https://www.menards.com/main/building-materials/lumber-boards/c-5666.htm)
 ## Video
 
 - [What Kind of Wood Should You Build With? | WOODWORKING BASICS](https://www.youtube.com/watch?v=y7gLvEYoBu0)
