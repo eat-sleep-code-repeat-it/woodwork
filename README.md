@@ -9,3 +9,8 @@
 - [Super Efficient 2x4 Garage Shelves | DIY Garage Storage](https://www.youtube.com/watch?v=edh0SjQReDw)
 - [How to Build Easy and Strong Storage Shelves](https://www.youtube.com/watch?v=o4CKoDv_RwQ)
 - [Yet Another Ikea Lack Hack](https://www.youtube.com/watch?v=t6KNzqdOdjE)
+- [Easy DIY Garage Storage Shelves / How to Build With Limited Tools / FREE Plans](https://www.youtube.com/watch?v=B4T9tuHcztE)
+
+## tools
+
+-[Kreg KMA2685 Rip-Cut Circular Saw Guide , Blue $39.00](Kreg Rip Cut - https://amzn.to/2ZAAqry)
