@@ -21,3 +21,7 @@
 - [Kreg KMA2685 Rip-Cut Circular Saw Guide , Blue $39.00](Kreg Rip Cut - https://amzn.to/2ZAAqry)
 - Franklin International 5005 Titebond II Premium Wood Glue, 32-Ounce Bottle
 - Gorilla 6231501 Wood Glue, 1 gallon Bottle, Natural Wood Color
+
+## 
+
+- [How to Build Easy and Strong Storage Shelves](https://www.youtube.com/watch?v=o4CKoDv_RwQ)
