@@ -2,9 +2,11 @@
 
 [Janka hardness of woods](https://docs.google.com/file/d/1Zp8WJXgURrWtcZiHhY9Om2Ann1J1YwcV/view)
 
-## story
-
+## Lumber Yard or Stores
 - [Menards Lumber & Boards at 32501 VAN DYKE AVE WARREN, MI 48093](https://www.menards.com/main/building-materials/lumber-boards/c-5666.htm)
+
+## My Tools
+
 ## Video
 
 - [What Kind of Wood Should You Build With? | WOODWORKING BASICS](https://www.youtube.com/watch?v=y7gLvEYoBu0)
@@ -22,6 +24,7 @@
 - Franklin International 5005 Titebond II Premium Wood Glue, 32-Ounce Bottle
 - Gorilla 6231501 Wood Glue, 1 gallon Bottle, Natural Wood Color
 
+## Project - 1
 ## Project - 2
 
 - [How to Build Easy and Strong Storage Shelves](https://www.youtube.com/watch?v=o4CKoDv_RwQ)
