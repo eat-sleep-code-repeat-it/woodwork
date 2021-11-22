@@ -8,6 +8,7 @@
 ## My Tools
 
 ## BlackFriday
+- [pre-black-friday/menards](https://blackfriday.com/ads/pre-black-friday/menards?page=26)
 - [Black Friday 2021 Ad and Deals](https://www.theblackfriday.com/when-is-black-friday.shtml)
 - [Lowes](https://blackfriday.com/ads/black-friday/lowes?page=3)
 - [Home-Depot-Black-Friday-2021-Flyer](https://i1.wp.com/www.blackerfriday.com/wp-content/uploads/2021/11/The-Home-Depot-Black-Friday-2021-Flyer-5.png?resize=768%2C915&ssl=1)
