@@ -8,9 +8,11 @@
 ## My Tools
 
 ## BlackFriday
--[Black Friday 2021 Ad and Deals](https://www.theblackfriday.com/when-is-black-friday.shtml)
--[Lowes](https://blackfriday.com/ads/black-friday/lowes?page=3)
--[Home-Depot-Black-Friday-2021-Flyer](https://i1.wp.com/www.blackerfriday.com/wp-content/uploads/2021/11/The-Home-Depot-Black-Friday-2021-Flyer-5.png?resize=768%2C915&ssl=1)
+- [Black Friday 2021 Ad and Deals](https://www.theblackfriday.com/when-is-black-friday.shtml)
+- [Lowes](https://blackfriday.com/ads/black-friday/lowes?page=3)
+- [Home-Depot-Black-Friday-2021-Flyer](https://i1.wp.com/www.blackerfriday.com/wp-content/uploads/2021/11/The-Home-Depot-Black-Friday-2021-Flyer-5.png?resize=768%2C915&ssl=1)
+- [Menards Black Friday 2021] (https://blackfriday.com/ads/black-friday/menards)
+
 ## Video
 
 - [What Kind of Wood Should You Build With? | WOODWORKING BASICS](https://www.youtube.com/watch?v=y7gLvEYoBu0)
