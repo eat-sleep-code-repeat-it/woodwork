@@ -22,6 +22,6 @@
 - Franklin International 5005 Titebond II Premium Wood Glue, 32-Ounce Bottle
 - Gorilla 6231501 Wood Glue, 1 gallon Bottle, Natural Wood Color
 
-## 
+## Project - 2
 
 - [How to Build Easy and Strong Storage Shelves](https://www.youtube.com/watch?v=o4CKoDv_RwQ)
