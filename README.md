@@ -8,6 +8,7 @@
 ## My Tools
 
 ## BlackFriday
+- [costco-blackfriday](https://www.theblackfriday.com/costco-blackfriday.shtml)
 - [pre-black-friday/menards](https://blackfriday.com/ads/pre-black-friday/menards?page=26)
 - [Black Friday 2021 Ad and Deals](https://www.theblackfriday.com/when-is-black-friday.shtml)
 - [Lowes](https://blackfriday.com/ads/black-friday/lowes?page=3)
